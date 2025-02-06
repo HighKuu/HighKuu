@@ -19,7 +19,7 @@
 
 🙏 Merci pour votre visite, et au plaisir d'échanger avec vous ! 🌟
 
-[Mon portfolio 🎓](https://highkuu.github.io/website_CV.github.io/) (Toujours en travaux)
+[Mon portfolio 🎓](https://highkuu.github.io/website_CV.github.io/) (Toujours et eternellement en travaux)
 
 Me contacter :  
 📧 Email : halim.moulay@gmail.com  
