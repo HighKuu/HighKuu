@@ -1,6 +1,6 @@
 ## <p align="center"> Bienvenue sur mon GitHub ! 👋</p>
 
-🎓 Data Analyst en reconversion, passionné par la tech et les données. Après plusieurs années d'expérience dans divers domaines notamment l'escalade, j'ai suivi une formation à la Wild Code School, où j'ai obtenu une certification RNCP de niveau 6 (équivalent Bac+3).
+🎓 Data Analyst en reconversion, passionné par la tech et les données. Après plusieurs années d'expérience dans divers domaines notamment le management et la formation, j'ai suivi une formation à la Wild Code School, où j'ai obtenu une certification RNCP de niveau 6 (équivalent Bac+3).
 
 💡 Ce qui me motive ? Trouver du sens dans les données, résoudre des problèmes complexes et créer des solutions impactantes.
 
