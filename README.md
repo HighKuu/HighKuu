@@ -15,7 +15,7 @@
 🤝 Ouvert aux collaborations et aux échanges  
 
 
-🚀 À la recherche d'opportunités en tant que Data Analyst, notamment une alternance "chefferie de projet IA ! Si vous avez un projet intéressant ou une opportunité, n’hésitez pas à me contacter.
+🚀 À la recherche d'opportunités en tant que Data Analyst, notamment une alternance "chefferie de projet IA" ! Si vous avez un projet intéressant ou une opportunité, n’hésitez pas à me contacter.
 
 🙏 Merci pour votre visite, et au plaisir d'échanger avec vous ! 🌟
 
